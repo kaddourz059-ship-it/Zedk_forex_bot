@@ -1,0 +1,1 @@
+# Zedk_forex_bot
